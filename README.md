@@ -1,9 +1,9 @@
 ## ⚡ Gabriel Cardoso de Souza ⚡
 
 - 👨‍💻 Developer
-- 🔎 Curioso
-- ✈️ Amo viajar
-- 🏅 Amo fazer esportes nas horas vagas
+- 🔎 Curious
+- ✈️ Love travelling
+- 🏅 Athlete in his spare time
 
 ##
 
