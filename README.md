@@ -3,7 +3,7 @@
 - 👨‍💻 Developer
 - 🔎 Curious
 - ✈️ Love travelling
-- 🏅 Athlete in his spare time
+- 🏅 Athlete in my spare time
 
 ##
 
